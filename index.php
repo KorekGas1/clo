@@ -3,6 +3,7 @@
 <head>
   <meta charset="utf-8" />
   <meta name="msvalidate.01" content="29CE124B5E69EE250EA52919DBCB9315" />
+  <meta name="google-site-verification" content="GgMeyu1IEOs7mOYPfJJxP7KlYTSagEN6JVpKIfL-hfc" />
   <title>WONGTOTO » Situs Toto & Toto Togel 4D Resmi Berhadiah Terbesar Terpercaya</title>
   <meta name="description" content="WONGTOTO ialah situs toto & toto togel 4d resmi berhadiah terbesar terpercaya di Indonesia, dengan prediksi toto jitu paling akurat dan terbaik." />
   <meta name="keywords" content="WONGTOTO, toto, togel, 4d, situs toto, situs togel, situs 4d, toto togel, toto 4d, situs toto togel, situs toto 4d" />
